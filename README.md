@@ -43,7 +43,7 @@
 
 <br/>
 
-## 2. 완료일 : 5월 25일 <br/>
+## 2. 완료일 : 4월 23일 <br/>
 [https://blog.naver.com/sleekydz86/223083106638](https://blog.naver.com/sleekydz86/223083106638)
 
 <br/><br/>
